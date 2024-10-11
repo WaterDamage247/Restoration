@@ -2,7 +2,7 @@
 
 Call us 24/7 at **(800) 737-8776** for immediate help with [water damage in Los Angeles, CA](https://waterdamagerestoration.pages.dev/). Our trained team is ready to restore your property quickly!
 
-When flood damage occurs—whether from a burst pipe, sewage, flooding, or fire smoke—acting quickly is essential. Water can cause extensive damage to your property and lead to costly repairs if not addressed immediately. In Los Angeles, having access to reliable water restoration services is invaluable. This expert guide will help you know what to do when disaster strikes.
+When flood damage occurs—whether from a burst pipe, sewage, flooding, or fire smoke damage, acting quickly is essential. Water can cause extensive damage to your property and lead to costly repairs if not addressed immediately. In Los Angeles, having access to reliable water restoration services is invaluable. This expert guide will help you know what to do when disaster strikes.
 
 At Water Damage Restoration Los Angeles, we understand that dealing with flood damage can be overwhelming. That's why we offer emergency services to assist with everything from water removal to cleanup and repairs. Our dedicated team is here to restore your property to its best condition. If you need help, just give us a call—we're ready to assist you.
 
